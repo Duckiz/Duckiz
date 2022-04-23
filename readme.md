@@ -1,2 +1,1 @@
-- Hi! Im ducks
-- uhhhhhhhhhhh ok bye
+Idk lol
